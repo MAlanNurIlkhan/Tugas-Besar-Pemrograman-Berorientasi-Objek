@@ -1,1 +1,1 @@
-# Tugas-Besar-Pemrograman-Berorientasi-Objek
+Assalamualaikum wr. wb. perkenalkan nama saya M ALan Nur Ilkhan nim 32602000036 
